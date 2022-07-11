@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Christian - the business owner of www.jlink.de
+- 👋 Hi, I’m Christian - CEO and business owner of www.jlink.de
 - 👀 I’m interested in meeting the most talented tech developers in the world
 - 🌱 I’m currently learning how to find more valuable moments in life
 - 💞️ I’m looking to collaborate on helping individuals achieve their personal and professional goals
